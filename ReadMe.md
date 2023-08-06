@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working as a DevOps Engineer. <br>Always curious to learn new things<br>I am willing to work where it does make a difference
+I'm currently working as a Software Engineer. <br>Always curious to learn new things<br>I am willing to put in work that makes a difference
 
 
 ## 🌐 Socials:
